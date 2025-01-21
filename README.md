@@ -1,0 +1,2 @@
+IMAGE PREDICTION :
+                    A modern, eco-friendly house with a sleek, minimalist design. The exterior features clean lines, large solar panels integrated into the roof, and a façade made of sustainable materials like reclaimed wood and recycled steel. The home is surrounded by greenery, with vertical gardens climbing the walls and a rooftop garden providing insulation and an urban oasis.
